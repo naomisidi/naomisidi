@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **nsidichome@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/naomisidi-53531451](www.linkedin.com/in/naomisidi-53531451)
+- 📄 Know about my experiences [www.linkedin.com/in/naomisidi-53531451](www.linkedin.com/in/naomi-sidi)
 
 - ⚡ Fun fact **I am a diplomat with an INFJ personality. Mahatma Gandhi, MLK and Nelson Mandela are good company. I can comfortably say that I'm part of the top 1% of the population!**
 
